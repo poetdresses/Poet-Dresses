@@ -1,4 +1,4 @@
-# Poet-Dresses
+# Poet Dresses
 Poet Dresses offers modest, stylish, and high-quality dresses designed for confident, comfortable wear. Each piece combines elegance with practicality, perfect for any occasion. 
 https://poetdresses.com/
 
